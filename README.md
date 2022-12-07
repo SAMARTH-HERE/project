@@ -1,1 +1,5 @@
-# project
+# project NAME: SAMARTH KUMAR
+REG. NO. : 2241011179
+CSE SECTION 26
+TELEGRAM USER ID: @Samarth_here
+
